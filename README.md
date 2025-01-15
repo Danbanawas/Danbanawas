@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @Danbanawas aka Danah.
 - 👀 I’m interested in game dev and data structure and old computers!
-- 📫 How to reach me on my twitter account @DETHBRI
 - 😄 Pronouns: ..
 - ⚡ Fun fact: water is an enslaved moister!!!
 - 𒌐
